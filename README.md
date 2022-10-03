@@ -1,3 +1,3 @@
 # epic_beats
-# UAUAUAUAUA
+# how to download
 press the code button and download zip to download
